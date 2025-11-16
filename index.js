@@ -2,10 +2,10 @@
 
 // Deploy From New Repository ✅ 
 
-// KHAN-MD version 5.0 ❤️
+// DARK-NICK version 5.0 ❤️
 
-// Thanks For Chosing KHAN MD 🔥
+// Thanks For Chosing DARK NICK BOT 🔥
 
 // Made with ♥️ By JawadTech 
 
-// Powered By JawadTechX KHAN-MD 2025 🚀
+// Powered By DARK NICK OWN BOT 2025 🚀
